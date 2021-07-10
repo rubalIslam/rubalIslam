@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @rubalIslam
 - 👀 I’m interested in Creating android apps, games, digital painting and sleeping.
-- 🌱 I’m currently learning how stay cool,when there's bugs around.
+- 🌱 I’m currently learning how stay cool, when there's bugs around.
 - 💞️ I’m looking to collaborate on making the world a bug free PlayNet.
 - 📫 Complain on piracy: rubalislamlaskar@gmail.com, I am broke, So I try to get things free on internet, so give me a mail, I'll remove it.
 
